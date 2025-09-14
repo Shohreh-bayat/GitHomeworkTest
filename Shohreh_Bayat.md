@@ -6,6 +6,4 @@ If you ask about my favourite food, it is hard to choose because there are a lot
 
 When it comes to music, I always struggle what is my favourite music because unlike many I normally do not listen to music. However, there are some songs that I am familiar with, such as "Don't Cry for me Argentina", "Titanic", and among persian music "Soltan-e-Ghalbha" is one of my favourite ones:https://youtu.be/N60ktsw8ZBs?si=_NUQh8S2UrQlltJJ
 
-An interesting fact about me is that I won the International Woman of Courage Award in 2021, but I really do not think it is an interesting fact about me, and I just wrote since you asked "impress us"!
-
-Personally, I am more proud of being a kind person who cares about her loved ones. I try to be a positive impact, and I love learning.
+An interesting about me is that I am a kind person. I care about people and my loved ones. I try to be a positive impact, and also I love learning.
